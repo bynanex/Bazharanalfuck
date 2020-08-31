@@ -1,4 +1,6 @@
 # Welcome to Bazhars anal session
+Dm me mister bazhar: I love bazhar#4415
+
 Hello Bazhar nothing personal but I hate you :=) 
 
 # What is this? 
