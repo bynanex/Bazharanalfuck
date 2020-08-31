@@ -16,3 +16,4 @@ Anyways happy pasting :=)
 # The German nation is not proud :-(
 
 # Open pull request, if you need help updating it.
+https://imgur.com/a/wnWz1ZO
